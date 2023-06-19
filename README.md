@@ -8,3 +8,5 @@ defintion of the word Ubuntu is: Ubuntu is a Nguni Bantu term meaning "humanity"
 My name is Emanuela.
 
 I am 37 Years old.
+
+Änderung
